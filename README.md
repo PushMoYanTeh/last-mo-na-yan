@@ -1,0 +1,1 @@
+Wag mo na uulitin yang joke mo, baka mapa-away ka lang.
